@@ -1,1 +1,1 @@
-# -Capstone_1
+# The Skin Guru is a dedicated online platform committed to helping clients achieve clear, radiant skin and boost their confidence. Our team of certified dermatologists provides personalized virtual consultations to identify the ideal skincare regimen tailored to your unique skin type. 
